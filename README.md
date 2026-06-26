@@ -10,7 +10,7 @@ $${\color{#1E3047}that}$$ $${\color{#3E5263}was}$$ $${\color{#687E87}until}$$ $$
 </p>
 
 <p align="center">
- <a href= "https://set.atabook.org"> ata</a>ㅤㅤ $${\color{#3E5263}｡}$$ $${\color{#687E87}⁖}$$ $${\color{#8DA5A6}⋆.}$$ ㅤㅤ<a href= "https://pronouns.cc/@ahri">prns.cc</a>ㅤㅤ $${\color{#AAAEAD}˖}$$ $${\color{#CAB8B4}✦}$$ $${\color{#E3C0BA}⊹｡}$$ ㅤㅤ<a href= "https://rentry.co/craftedmovie">rentry</a> 
+ <a href= "https://set.atabook.org"> ata</a>ㅤㅤ $${\color{#3E5263}｡}$$ $${\color{#687E87}⁖}$$ $${\color{#8DA5A6}⋆.}$$ ㅤㅤ<a href= "https://pronouns.cc/@ahri">prns.cc</a>ㅤㅤ $${\color{#AAAEAD}˖}$$ $${\color{#CAB8B4}✦}$$ $${\color{#E3C0BA}⊹｡}$$ ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a> 
 </p>
 
 <p align="center">
