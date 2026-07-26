@@ -1,25 +1,28 @@
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-04_175446821.png" /></div>
-<p align="center">
-$${\color{#1E3047}｡}$$ $${\color{#3E5263}⁖}$$ $${\color{#687E87}✦}$$ $${\color{#8DA5A6}˖}$$ ㅤ $${\color{#AAAEAD}.}$$ $${\color{#CAB8B4}⊹}$$ $${\color{#E3C0BA}｡}$$ $${\color{#CAB8B4}˖}$$ ㅤ $${\color{#AAAEAD}✧}$$ $${\color{#8DA5A6}⊹}$$ $${\color{#687E87}｡}$$ $${\color{#3E5263}⁖}$$ $${\color{#1E3047}.}$$ ㅤ
+<img align="left" src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-07-26_162850310.png">
+<div align="left"> ㅤ </div>
+<div align="left"> ㅤ </div>
+<div align="left"> ㅤ </div>
+<p align="left">
+$${\color{#558A66}cam}$$ $${\color{#276658}or}$$ $${\color{#B0A271}cmeo}$$ ㅤ $${\color{#276658}♡}$$ $${\color{#276658}he}$$ </br>
+$${\color{#558A66}16yo}$$ $${\color{#B0A271}08/26}$$ ㅤ $${\color{#276658}or}$$ $${\color{#276658}she}$$ </br>
+ㅤ
+
+$${\color{#1B3338}sometimes,}$$ $${\color{#22494A}something}$$ ㅤ $${\color{#276658}in}$$ $${\color{#558A66}the}$$ $${\color{#80946A}space}$$ $${\color{#B0A271}after}$$ $${\color{#BAB882}our}$$ $${\color{#C9CC95}time}$$ ㅤ</br>
+ㅤ $${\color{#1B3338}confuses}$$ $${\color{#22494A}when}$$ $${\color{#558A66}you}$$ ㅤ $${\color{#80946A}were,}$$ $${\color{#B0A271}then}$$ $${\color{#BAB882}weren't}$$ $${\color{#C9CC95}mine}$$ ㅤ</br>
 </p>
 
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-04_174208763.png" /></div>
-<p align="center">
-ㅤ $${\color{#CAB8B4}◜}$$ㅤ $${\color{#1E3047}i}$$ $${\color{#3E5263}used}$$ $${\color{#687E87}to}$$ $${\color{#8DA5A6}hear}$$ ㅤ $${\color{#AAAEAD}a}$$ $${\color{#CAB8B4}simple}$$ $${\color{#E3C0BA}song}$$ ㅤㅤ</br>
-$${\color{#1E3047}that}$$ $${\color{#3E5263}was}$$ $${\color{#687E87}until}$$ $${\color{#8DA5A6}you}$$ ㅤ $${\color{#AAAEAD}came}$$ $${\color{#CAB8B4}along}$$ $${\color{#E3C0BA}♡}$$ ㅤ $${\color{#3E5263}◞}$$ ㅤ</br>
+<p align="left">
+ <a href= "https://set.atabook.org"> ata</a> ㅤ $${\color{#558A66}𓏵}$$ ㅤ <a href= "https://pronouns.cc/@ahri">prns.cc</a> ㅤ $${\color{#B0A271}𓏵}$$ ㅤ <a href= "https://rentry.co/cmeo">rentry</a> ㅤ $${\color{#C9CC95}𓏵}$$ ㅤ <a href= "https://x.com/PIPIPIPIPIFOREN">credit</a>  
 </p>
 
-<p align="center">
- <a href= "https://set.atabook.org"> ata</a>ㅤㅤ $${\color{#3E5263}｡}$$ $${\color{#687E87}⁖}$$ $${\color{#8DA5A6}⋆.}$$ ㅤㅤ<a href= "https://pronouns.cc/@ahri">prns.cc</a>ㅤㅤ $${\color{#AAAEAD}˖}$$ $${\color{#CAB8B4}✦}$$ $${\color{#E3C0BA}⊹｡}$$ ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a> 
-</p>
-
-<p align="center">
-$${\color{#1E3047}now}$$ $${\color{#3E5263}in}$$ $${\color{#687E87}it's}$$ $${\color{#8DA5A6}place}$$ ㅤ $${\color{#AAAEAD}is}$$ $${\color{#CAB8B4}something}$$ $${\color{#E3C0BA}new}$$ ㅤ $${\color{#3E5263}◝}$$ ㅤ</br>
-ㅤ $${\color{#CAB8B4}◟}$$ㅤ $${\color{#1E3047}i}$$ $${\color{#3E5263}hear}$$ $${\color{#687E87}it}$$ $${\color{#8DA5A6}when}$$ ㅤ $${\color{#AAAEAD}i}$$ $${\color{#AAAEAD}look}$$ $${\color{#CAB8B4}at}$$ $${\color{#E3C0BA}you}$$ ㅤㅤㅤㅤ</br>
-</p>
-
-<p align="center">
-$${\color{#687E87}massive}$$ $${\color{#8DA5A6}League}$$ $${\color{#AAAEAD}of}$$ $${\color{#CAB8B4}Legends}$$ $${\color{#E3C0BA}fan}$$ $${\color{#CAB8B4}and}$$ $${\color{#AAAEAD}player}$$ ㅤㅤ $${\color{#8DA5A6}NA}$$ $${\color{#687E87}only}$$ ㅤ
+<p align="left">
+$${\color{#1B3338}baby,}$$ $${\color{#22494A}can}$$ $${\color{#276658}you}$$ $${\color{#558A66}tell}$$ $${\color{#80946A}me}$$ ㅤ $${\color{#80946A}if}$$ $${\color{#B0A271}it}$$ $${\color{#BAB882}hurts}$$ $${\color{#C9CC95}like}$$ $${\color{#C9CC95}that?}$$ ㅤㅤ</br>
+ㅤㅤㅤㅤ $${\color{#22494A}does}$$ $${\color{#558A66}it}$$ $${\color{#80946A}hurt}$$ ㅤ $${\color{#B0A271}like}$$ $${\color{#BAB882}that?}$$ ㅤㅤ</br>
 </p>
 ㅤ
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-04_175446821.png" /></div>
+
+<p align="left">
+$${\color{#558A66}LoL}$$ $${\color{#B0A271}player}$$ ㅤ $${\color{#276658}NA}$$ $${\color{#276658}only}$$ </br>
+$${\color{#558A66}sett}$$ $${\color{#B0A271}yume}$$ ㅤ $${\color{#276658}hypersharer}$$ ㅤ</br>
+$${\color{#BEC19E}+}$$ $${\color{#BEC19E}ahri,}$$ $${\color{#BEC19E}xayah,}$$ $${\color{#BEC19E}rakan}$$ ㅤ</br>
+</p>
